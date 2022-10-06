@@ -2,3 +2,4 @@
 Pembuatan Repository Praktikum-2
 
 Aulia Firyal Syarifa - 105219026
+Aulia Firyal Syarifa - 105219026
